@@ -1,0 +1,2 @@
+# WareWare-Private-Script
+Amazing
